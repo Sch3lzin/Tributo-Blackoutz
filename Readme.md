@@ -14,4 +14,4 @@ Versão: 1.0
 
 -- Homenagem ao Blackoutz --
 
-© Copyright - Todos os direitos Reservados - By Sch3lzin"# Tributo-Blackoutz" 
+© Copyright - Todos os direitos Reservados - By Sch3lzin
